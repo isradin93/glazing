@@ -1,0 +1,2 @@
+# glazing
+## Glazing of balconies
